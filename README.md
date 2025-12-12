@@ -1,5 +1,7 @@
 # The Last Smile
 
+https://www.youtube.com/watch?v=YjP9wzXRhEY
+
 In a world reduced to smoke and broken stone, a mute girl named Chisa wanders alone through the ruins, barefoot and hollow-eyed, clutching a small silver locket as if it were the last piece of her heart. The war has taken everything from her except silence. Amid ash and grief, she finds herself at a quiet lake where the world, for a moment, forgets to burn. There she meets Iori, a gentle mute boy with a warm presence and tired kindness. Without words, they share food, days, and fragile moments of peace—searching for scraps, running through broken hills, laughing without sound.
 
 Iori’s small acts of care slowly crack the shell around Chisa’s grief. When he climbs a tree to bring her honey and falls clumsily to the ground, something inside her finally breaks open—not in pain, but in light. For the first time since the world collapsed, Chisa smiles. She laughs softly, then steps forward and hugs him, clinging as if afraid he might disappear if she lets go. For a brief moment, hope exists on a mountaintop while the war smolders far below.
